@@ -1,1 +1,1 @@
-https://effortless-zuccutto-fae638.netlify.app/
+https://vishalkambel-portfolio.netlify.app/
